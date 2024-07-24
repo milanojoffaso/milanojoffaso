@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @milanojoffaso
 - 👀 I’m interested in exploring new stuff
-- 🌱 I’m currently learning Btech in computer science 
+- 🌱 I’m currently doing Btech in computer science 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me www.linkedin.com/in/melit-joffy-a798a2276
 - 😄 Pronouns: she/her
